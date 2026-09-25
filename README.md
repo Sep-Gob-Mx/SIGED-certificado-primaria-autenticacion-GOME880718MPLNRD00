@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-GOME880718MPLNRD00
+GOME880718MPLNRD00
